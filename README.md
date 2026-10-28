@@ -78,6 +78,6 @@
 ---
 
 ### Let's Connect
-* **Instagram:** https://www.instagram.com/deni98val/
+* **Linkedin:** https://www.linkedin.com/in/dvalchinova/
 * **Email:** ddvalchinova@gmail.com
 
